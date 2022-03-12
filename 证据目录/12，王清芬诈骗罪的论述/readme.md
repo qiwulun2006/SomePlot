@@ -1,4 +1,4 @@
-更多内容请参考：https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE
+更多内容请参考：https://github.com/qiwulun2006/SomePlot/blob/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/Readme.MD
 
 ===================
 
