@@ -10,7 +10,7 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 ......
 
-“原、被告各自认可的借款本金是多少？”
+法官：“原、被告各自认可的借款本金是多少？”
 
 原告：“428万元。”
 
