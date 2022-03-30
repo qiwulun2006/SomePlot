@@ -108,6 +108,8 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 这份清单地址如下：
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/7%EF%BC%8C%E4%B8%A4%E4%B8%AA%E4%BA%BA%E5%85%B1%E5%90%8C%E8%B5%B7%E8%AF%89%E6%9E%97%E5%9B%BD%E4%BB%98%EF%BC%8C%E7%84%B6%E5%90%8E%E5%86%8D%E5%88%86/3%EF%BC%8C%E5%AE%87%E7%91%9B%E5%86%99%E7%9A%84%E6%88%BF%E7%A5%A8%E6%B8%85%E5%8D%95%EF%BC%8C%E5%BA%AD%E5%86%85%E5%BA%AD%E5%A4%96%E6%98%AF%E5%90%8C%E4%B8%80%E5%9C%BA%E8%B0%88%E5%88%A4%E5%90%8E%E5%88%86%E5%89%B2%E6%88%90%E5%86%85%E5%A4%96%EF%BC%8C2016%E5%B9%B4%E5%86%8D%E5%AE%A1%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%92%8C%E7%8E%8B%E6%B8%85%E8%8A%B3%E5%88%86%E5%88%AB%E6%8F%90%E4%BA%A4
+
 ====================================
 
 
@@ -116,6 +118,10 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 631号调解书里的很多房票写的是王清芬的名字，写房票时，王清芬，王清芳，林国付，宇瑛都在场。当时大家说的是两个原告都写几张，之后两个人再分。
 
 所以宇瑛写的草稿和正式版的名字并不完全相同。说明两人还并没有正式进行分割，但这些都足以说明，王清芬在签订调解书之初，是跟王清芳和林国付说要承担房产。只是事后丧尽天良，不想承担房产。
+
+地址如下：
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/7%EF%BC%8C%E4%B8%A4%E4%B8%AA%E4%BA%BA%E5%85%B1%E5%90%8C%E8%B5%B7%E8%AF%89%E6%9E%97%E5%9B%BD%E4%BB%98%EF%BC%8C%E7%84%B6%E5%90%8E%E5%86%8D%E5%88%86/4%EF%BC%8C%E5%8E%9F%E5%A7%8B%E6%88%BF%E7%A5%A8
 
 ===================================================
 
@@ -129,7 +135,11 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 除此之外，两人没有任何代理关系，王清芬自己就是林国付的原告，并不是原告代理。从查封，起诉，谈判，调解，申请执行取钱，王清芬享受了全部的原告权利
 
+地址如下：
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/7%EF%BC%8C%E4%B8%A4%E4%B8%AA%E4%BA%BA%E5%85%B1%E5%90%8C%E8%B5%B7%E8%AF%89%E6%9E%97%E5%9B%BD%E4%BB%98%EF%BC%8C%E7%84%B6%E5%90%8E%E5%86%8D%E5%88%86/5%EF%BC%8C%E6%9E%97%E5%9B%BD%E4%BB%98%E5%92%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E7%AD%BE%E8%AE%A2%E7%9A%84%E5%8D%8F%E8%AE%AE
+
+===============================================
 
 6，民事关系，讲的是，证据加合理推测。
 
