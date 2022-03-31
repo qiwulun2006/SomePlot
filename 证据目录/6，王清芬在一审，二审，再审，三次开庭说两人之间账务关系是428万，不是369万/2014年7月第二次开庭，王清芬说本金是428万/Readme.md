@@ -24,3 +24,8 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/257%E5%8F%B7%E5%88%A4%E5%86%B3%E4%B9%A6%E6%AD%A3%E5%8D%B71%E4%B8%AD%E7%9A%84%E5%BA%AD%E5%AE%A1%E7%AC%94%E5%BD%95%E5%92%8C%E8%B0%83%E6%9F%A5%E7%AC%94%E5%BD%95
 
+========================
+
+对于2014年7月25日这次庭审，更多论述，见如下地址：
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/10%EF%BC%8C%E5%AF%B9161%E4%B8%87%E6%94%B9%E6%88%90220%E4%B8%87%E7%9A%84%E6%97%B6%E9%97%B4%E5%92%8C%E5%9C%B0%E7%82%B9%E8%AE%A4%E8%AF%81
