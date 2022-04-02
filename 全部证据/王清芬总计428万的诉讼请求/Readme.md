@@ -27,7 +27,7 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 我们都知道，以369万计算和以428万计算，还要算到给付之日，这两者每多算一年，就要多出十多万的利息出来。2012年9月就已经改条，如果算到起诉林国付的2013年10月，就多出16万。
 
-如果再往后算一年，算到2014年10月，就要多出32万。算到一审判决书下达，这个数额就更大。但是我们也要谨慎地考虑一下，是不是我们过分解读了王清芬的这个诉讼请求？她的诉讼请求是这么想的么？
+如果再往后算一年，算到2014年10月，就要多出32万。算到一审判决书下达，这个数额就更大。但是我们也要谨慎地考虑一下，是不是我们过分解读了王清芬的这个诉讼请求？她的诉讼请求表达了她这些主观意愿么？
 
 于是我再提出几个补充证据，也是写入法院庭审和调查笔录的内容
 
@@ -35,9 +35,13 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 地址如下：
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/6%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%9C%A8%E4%B8%80%E5%AE%A1%EF%BC%8C%E4%BA%8C%E5%AE%A1%EF%BC%8C%E5%86%8D%E5%AE%A1%EF%BC%8C%E4%B8%89%E6%AC%A1%E5%BC%80%E5%BA%AD%E8%AF%B4%E4%B8%A4%E4%BA%BA%E4%B9%8B%E9%97%B4%E8%B4%A6%E5%8A%A1%E5%85%B3%E7%B3%BB%E6%98%AF428%E4%B8%87%EF%BC%8C%E4%B8%8D%E6%98%AF369%E4%B8%87/2014%E5%B9%B47%E6%9C%88%E7%AC%AC%E4%BA%8C%E6%AC%A1%E5%BC%80%E5%BA%AD%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E8%AF%B4%E6%9C%AC%E9%87%91%E6%98%AF428%E4%B8%87
+
 第二个补充：王清芬二审，再审，又多次要求认定428万
 
 地址如下：
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/6%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%9C%A8%E4%B8%80%E5%AE%A1%EF%BC%8C%E4%BA%8C%E5%AE%A1%EF%BC%8C%E5%86%8D%E5%AE%A1%EF%BC%8C%E4%B8%89%E6%AC%A1%E5%BC%80%E5%BA%AD%E8%AF%B4%E4%B8%A4%E4%BA%BA%E4%B9%8B%E9%97%B4%E8%B4%A6%E5%8A%A1%E5%85%B3%E7%B3%BB%E6%98%AF428%E4%B8%87%EF%BC%8C%E4%B8%8D%E6%98%AF369%E4%B8%87
 
 第三个补充：王清芬调查笔录，王清芬说，她当初和林国付主张的让林国付偿还的400万都给她也不够，还应该让王清芳从家里拿出来给她。
 
@@ -45,4 +49,6 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 
 
+
+现在我说：王清芬就是想要以428万为本金计算两人之间的账务，且利息给到给付之日，而且，王清芬只要现金，不要房子。我的理解难道不是相当到位么？
 
