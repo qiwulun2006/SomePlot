@@ -43,3 +43,8 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6
 https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/9%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%B32014%E5%B9%B45%E6%9C%88%EF%BC%8C%E6%8F%90%E4%BA%A4%E7%BB%99%E6%B3%95%E9%99%A2%E7%9A%843%E4%B8%AA%E8%BF%98%E6%AC%BE%E6%96%B9%E6%A1%88
 
 事实已经证明，王清芬并不想好好算账，就想要428万为本金的计算方式起诉。“她在那个调解案中把所有钱都给我，我就不会起诉她了”，这种说法无异于“她当初要是先迈右脚，我就不起诉他了”一样荒唐。
+
+
+对于2014年9月2日这段调查笔录的另外内容的解析在如下地址：
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/7%EF%BC%8C%E4%B8%A4%E4%B8%AA%E4%BA%BA%E5%85%B1%E5%90%8C%E8%B5%B7%E8%AF%89%E6%9E%97%E5%9B%BD%E4%BB%98%EF%BC%8C%E7%84%B6%E5%90%8E%E5%86%8D%E5%88%86/1%EF%BC%8C%E9%A9%AC%E7%8E%89%E7%87%952014%E5%B9%B49%E6%9C%882%E6%97%A5%E8%B0%83%E6%9F%A5%E7%AC%94%E5%BD%95
