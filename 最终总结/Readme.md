@@ -31,7 +31,7 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E6%9C%80%E7%BB%88%E6%80%BB%E7
 
 证据及详细描述如下：
 
-
+https://github.com/qiwulun2006/SomePlot/tree/main/%E6%9C%80%E7%BB%88%E6%80%BB%E7%BB%93/%E5%88%91%E4%BA%8B%E9%83%A8%E5%88%863
 
 这句话的重点是：两人一定有“第二次改条”，第二次改条的含义就是：两人不仅重新约定以161万为准，而且这161万，一定是书面形式存在王清芬手里。
 
