@@ -28,7 +28,9 @@
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/2015%E5%B9%B44%E6%9C%888%E6%97%A5%E6%8F%90%E4%BA%A4%E4%BA%8C%E5%AE%A1%E6%B3%95%E9%99%A2%E7%9A%8420%E4%B8%87%E8%AF%88%E9%AA%97%E9%A2%9D%E8%AE%A1%E7%AE%97%E6%B8%85%E5%8D%95
 
-而且，王清芬2015年2月2日，上诉时，就非常清楚，法律最高只支持到同期贷款利率4倍，不知道高利贷。见如下证据：
+而且，王清芬2015年2月2日，上诉时，就非常清楚，法律最高只支持到同期贷款利率4倍，不支持高利贷。见如下证据：
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%AF%B9122%E5%92%8C123%E5%8F%B7%E4%BA%8C%E5%AE%A1%E7%9A%84%E4%B8%8A%E8%AF%89%E8%AF%B7%E6%B1%82%EF%BC%88%E5%90%8C%E6%9C%9F%E8%B4%B7%E6%AC%BE%E5%88%A9%E7%8E%874%E5%80%8D%EF%BC%89
+
+
 
