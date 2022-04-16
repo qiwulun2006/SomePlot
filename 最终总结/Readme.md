@@ -194,6 +194,31 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6
 
 证据如下：
 
+1，上面刚提到过，2014年7月25日一审庭审笔录，王清芬在一审第二次开庭，明确要求按照本金428万计算。
+
+......
+
+**法官问：“原、被告各自认可的借款本金是多少？”**
+
+**原告：428万元。**
+
+**二被告：369万元。**
+
+......
+
+2，王清芬257,122,123一审诉讼请求累计求是428万。并有二审上诉请求，见如下地址：
+
+其中一审，王清芬还有一个表格，写的就是363万按照220万本金计算利息。
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/%E7%8E%8B%E6%B8%85%E8%8A%AC%E6%80%BB%E8%AE%A1428%E4%B8%87%E7%9A%84%E8%AF%89%E8%AE%BC%E8%AF%B7%E6%B1%82
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%9C%A82014%E5%B9%B42%E6%9C%88%E8%B5%B7%E8%AF%89%E7%9A%84257%E5%8F%B7%E5%88%A4%E5%86%B3%E4%B9%A6%E4%B8%AD%E7%9A%84%E8%AF%89%E8%AE%BC%E8%AF%B7%E6%B1%82%EF%BC%882014%E5%B9%B44%E6%9C%8815%E6%97%A5%E5%BC%80%E5%BA%AD%EF%BC%89
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%AF%B9122%E5%92%8C123%E5%8F%B7%E4%BA%8C%E5%AE%A1%E7%9A%84%E4%B8%8A%E8%AF%89%E8%AF%B7%E6%B1%82%EF%BC%88%E5%90%8C%E6%9C%9F%E8%B4%B7%E6%AC%BE%E5%88%A9%E7%8E%874%E5%80%8D%EF%BC%89
+
+3，王清芬一审，二审，再审，多次强调428万。
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/6%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%9C%A8%E4%B8%80%E5%AE%A1%EF%BC%8C%E4%BA%8C%E5%AE%A1%EF%BC%8C%E5%86%8D%E5%AE%A1%EF%BC%8C%E4%B8%89%E6%AC%A1%E5%BC%80%E5%BA%AD%E8%AF%B4%E4%B8%A4%E4%BA%BA%E4%B9%8B%E9%97%B4%E8%B4%A6%E5%8A%A1%E5%85%B3%E7%B3%BB%E6%98%AF428%E4%B8%87%EF%BC%8C%E4%B8%8D%E6%98%AF369%E4%B8%87/2014%E5%B9%B47%E6%9C%88%E7%AC%AC%E4%BA%8C%E6%AC%A1%E5%BC%80%E5%BA%AD%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E8%AF%B4%E6%9C%AC%E9%87%91%E6%98%AF428%E4%B8%87
 
 ==========================
 
