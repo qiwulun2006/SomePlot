@@ -266,6 +266,8 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 6，2014年7月25日，一审第二次开庭，王清芬当庭陈述，粉色小票子，虽然说得不清楚，但是暴露了两人确实用161万对账
 
+对于这个“粉色小票子”，理应继续追问，谁给你写的，什么时候写的，为什么给你写这个粉色小票子，写的时候是用来做什么用的？
+
 https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/257%E5%8F%B7%E5%88%A4%E5%86%B3%E4%B9%A6%E6%AD%A3%E5%8D%B71%E4%B8%AD%E7%9A%84%E5%BA%AD%E5%AE%A1%E7%AC%94%E5%BD%95%E5%92%8C%E8%B0%83%E6%9F%A5%E7%AC%94%E5%BD%95
 
 见右上角109页，110页，111页
@@ -291,6 +293,8 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6
 二被告：369万元。
 
 ......
+
+
 
 ==================================
 
