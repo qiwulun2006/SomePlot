@@ -242,9 +242,15 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E6%9C%80%E7%BB%88%E6%80%BB%E7%BB%93/161%E4%B8%87%E5%92%8C220%E4%B8%87%E6%9C%89%E4%BB%80%E4%B9%88%E4%B8%8D%E5%90%8C
 
+以超过10万为诈骗标的的，诈骗未遂也是诈骗，见如下地址：
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E6%9C%80%E7%BB%88%E6%80%BB%E7%BB%93/%E7%8E%8B%E6%B8%85%E8%8A%AC%E8%AF%88%E9%AA%97%E6%9C%AA%E9%81%82%E9%83%A8%E5%88%86%E7%9A%84%E4%B8%80%E4%BA%9B%E8%AE%A8%E8%AE%BA
+
 诈骗既遂20万的具体数额计算如下：
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/2015%E5%B9%B44%E6%9C%888%E6%97%A5%E6%8F%90%E4%BA%A4%E4%BA%8C%E5%AE%A1%E6%B3%95%E9%99%A2%E7%9A%8420%E4%B8%87%E8%AF%88%E9%AA%97%E9%A2%9D%E8%AE%A1%E7%AE%97%E6%B8%85%E5%8D%95
+
+诈骗未遂30万加诈骗既遂20万，总额超过50万，在2014年的尚志这种四线城市，理应属于数额特别巨大的诈骗案件。
 
 ===========================
 
