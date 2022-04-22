@@ -49,6 +49,16 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/7%EF%BC%8C%E4%B8%A4%E4%B8%AA%E4%BA%BA%E5%85%B1%E5%90%8C%E8%B5%B7%E8%AF%89%E6%9E%97%E5%9B%BD%E4%BB%98%EF%BC%8C%E7%84%B6%E5%90%8E%E5%86%8D%E5%88%86/1%EF%BC%8C%E9%A9%AC%E7%8E%89%E7%87%952014%E5%B9%B49%E6%9C%882%E6%97%A5%E8%B0%83%E6%9F%A5%E7%AC%94%E5%BD%95
 
-
 现在我说：王清芬就是想要以428万为本金计算两人之间的账务，且利息给到给付之日，而且，王清芬只要现金，不要房子，我误会她了么？我的理解难道不是相当到位么？
+
+如果有人有疑问：王清芬是不是以为369万和428万是一样的呀，是不是王清芬不知道428万能比369万要出更多呀？
+
+请见如下地址：王清芬亲口描述：
+
+**证据十三、被告王清芳给林国付写的信。证明按双方原来条算二被告欠我369万元，要按后换的三张条220万算就更多了。**
+
+https://github.com/qiwulun2006/SomePlot/blob/main/%E4%B8%80%E4%BA%9B%E7%96%91%E9%97%AE%E8%A7%A3%E7%AD%94/%E7%8E%8B%E6%B8%85%E8%8A%AC%E6%8F%90%E5%88%B0%E7%9A%84%E4%B8%89%E4%B8%AA%E8%AF%81%E6%8D%AE/%E7%8E%8B%E6%B8%85%E8%8A%AC%E4%B8%80%E5%AE%A1%E6%8F%90%E4%BE%9B%E7%9A%84%E8%AF%81%E6%8D%AE%E5%8D%81%E4%B8%89%EF%BC%9A%E7%8E%8B%E6%B8%85%E8%8A%B3%E7%BB%99%E6%9E%97%E5%9B%BD%E4%BB%98%E5%86%99%E7%9A%84%E4%BF%A1/Readme.md
+
+
+
 
