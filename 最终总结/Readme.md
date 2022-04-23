@@ -293,15 +293,32 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6
 
 证据一：汇款记录：钱全部是王清芬转给王清芳，从未转给林国付
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/16%EF%BC%8C%E7%9B%B4%E6%8E%A5%E8%AF%81%E6%8D%AE%EF%BC%9A369%E4%B8%87%E9%93%B6%E8%A1%8C%E8%BD%AC%E8%B4%A6%E8%AE%B0%E5%BD%95
 
 证据二：起诉林国付所用的379万借据，全部都是王清芳提供，没有任何一个是王清芬提供
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/379%E4%B8%87%E6%98%AF%E5%93%AA%E4%BA%9B
 
-证据三：王清芬口述部分
+证据三：2014年5月26日，马玉燕对王清芬调查笔录，见右上角97页
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/257%E5%8F%B7%E5%88%A4%E5%86%B3%E4%B9%A6%E6%AD%A3%E5%8D%B71%E4%B8%AD%E7%9A%84%E5%BA%AD%E5%AE%A1%E7%AC%94%E5%BD%95%E5%92%8C%E8%B0%83%E6%9F%A5%E7%AC%94%E5%BD%95
+
+......
+
+法官问：被告明水房地产和林国付共出具多少张借据？
+
+王清芬：共17张
+
+法官问：这17张借据都是给谁出具的？
+
+王清芬：都是给王清芳出具的欠据，王清芳又给我另外出具了15张欠据，我开庭时提供了13张，还有2张借据原件现在我手里，一张金额是30万，一张金额是35万。
+
+......
 
 
-证据四，林国付调查
+证据四，马玉燕对林国付调查笔录
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/%E6%9E%97%E5%9B%BD%E4%BB%98%E8%AF%B4%E6%9C%89%E4%B8%A4%E5%BC%A0%E5%80%9F%E6%8D%AE%E6%98%AF%E7%8E%8B%E6%B8%85%E8%8A%AC%E5%90%8D%E6%98%AF%E5%9B%A0%E4%B8%BA%E7%8E%8B%E6%B8%85%E8%8A%B3%E8%AE%A9%E4%BB%96%E8%BF%99%E4%B9%88%E5%86%99%E7%9A%84
 
 ================================
 
