@@ -3,15 +3,30 @@
 
 1，王清芬的369万，
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/1%EF%BC%8C2013%E5%B9%B410%E6%9C%88%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E7%BB%99%E7%8E%8B%E6%B8%85%E8%8A%B3%E6%89%8B%E5%86%99%E7%9A%84369%E4%B8%87%E5%AF%B9%E8%B4%A6%E6%B8%85%E5%8D%95
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/2%EF%BC%8C2013%E5%B9%B411%E6%9C%88%EF%BC%8C%E7%8E%8B%E6%B8%85%E8%8A%AC%E8%AE%A9%E7%8E%8B%E6%B8%85%E6%B3%89%E9%80%81%E7%BB%99%E7%8E%8B%E6%B8%85%E8%8A%B3%E7%9A%84369%E4%B8%87%E7%AE%97%E8%B4%A6%E6%98%8E%E7%BB%86
+
 
 2，王清芳的379万，
+
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/379%E4%B8%87%E6%98%AF%E5%93%AA%E4%BA%9B
 
 
 3，王清芳的庭外调解部分，以王桐名义买房，工资合同，动迁回迁户
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/631%E5%8F%B7%E6%A1%88%E4%BB%B6%E7%9A%84%E5%BA%AD%E5%A4%96%E8%B0%83%E8%A7%A3%E9%83%A8%E5%88%86
+
+https://github.com/qiwulun2006/SomePlot/blob/main/%E5%87%A0%E4%B9%8E%E5%85%A8%E9%83%A8%E8%AE%BA%E8%BF%B0%E6%9B%B4%E6%96%B0%E7%89%88
+
+其中如下问题的解答部分：
+
+问：王清芬说你在“庭外调节”中赚了很多钱？或者王清芬说你诈骗了林国付，要了很多不该要的钱，这里是不是有着什么不可告人的猫腻？
+
 
 4，张晓东和王清芬电话录音，第6段
 
+https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/0%EF%BC%8C%E6%8F%90%E4%BA%A4%E7%BB%99%E6%B3%95%E9%99%A2%E7%9A%84%E7%94%B5%E8%AF%9D%E5%BD%95%E9%9F%B3
 
 ......
 
