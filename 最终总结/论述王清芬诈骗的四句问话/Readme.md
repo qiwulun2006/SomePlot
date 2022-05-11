@@ -301,3 +301,9 @@ https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6
 https://github.com/qiwulun2006/SomePlot/tree/main/%E5%85%A8%E9%83%A8%E8%AF%81%E6%8D%AE/2015%E5%B9%B44%E6%9C%8821%E6%97%A5%E4%BA%8C%E5%AE%A1%EF%BC%8C%E6%98%8E%E7%A1%AE%E8%A6%81%E6%B1%82%E7%A7%BB%E9%80%81%E5%85%AC%E5%AE%89%E6%9C%BA%E5%85%B3%E8%B0%83%E6%9F%A5%EF%BC%8C%E6%98%8E%E7%A1%AE%E8%A1%A8%E7%A4%BA%E2%80%9C%E4%B8%8D%E5%8E%9F%E8%B0%85%E2%80%9D
 
 https://github.com/qiwulun2006/SomePlot/tree/main/%E8%AF%81%E6%8D%AE%E7%9B%AE%E5%BD%95/8%EF%BC%8C2016%E5%B9%B4%E5%86%8D%E5%AE%A1%EF%BC%8C%E5%BE%8B%E5%B8%88%E5%85%B3%E4%BA%8E%E5%80%BA%E5%8A%A1%E8%BD%AC%E7%A7%BB%E7%9A%84%E8%AE%BA%E8%BF%B0/2016%E5%B9%B411%E6%9C%882%E6%97%A5%E5%92%8C3%E6%97%A5%E4%B8%A4%E5%A4%A9%E5%AE%A1%E5%88%A4%E7%9A%84%E5%BE%8B%E5%B8%88%E6%84%8F%E8%A7%81
+
+====================
+
+最后，我个人认为：如果王清芬或者王清芬的律师做这种忘了，或者虽然撒谎了但是不是为了多要钱，是为了少要钱的这种辩护，在最终定罪的时候，是不应该给她算作自首情节的。
+
+自首就应该坦白自己诈骗了，想要达到多要钱的目的，并且各种细节还要跟证据都对得上。说忘了，说没想多要钱，这都不应该算有自首情节。
